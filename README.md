@@ -10,5 +10,5 @@
 内容均来自互联网，如果侵权，请联系删除。
 
 
-区块链白皮书 weixin：mipengchong
+区块链白皮书 weixin：babywind5258
 
